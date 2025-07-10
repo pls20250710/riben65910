@@ -18,4 +18,4 @@
 
 通过综合运用内容、技术和运营策略，成人资源站能够在激烈的市场环境中稳步发展，实现持续流量增长和用户满意度提升。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/pls20250710/riben65910 ）</span>
